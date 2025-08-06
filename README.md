@@ -1,0 +1,1 @@
+# Redefining-Kardashev-Scale-for-AGI-Era
